@@ -30,4 +30,4 @@ INTS : respect and kindness , any type of humor as long as it doesn't make anyon
 
 ⛔-I use the BUSY status as [ what I'd like to call ], a shield from any interaction, mostly because I'm kinda socially awkward, if you ever want to be friends maybe don't interact when I'm using this, you're gonna be met with silence-
 
- That's about all
+ That's about all!
