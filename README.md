@@ -12,7 +12,7 @@
 
 𝑰𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔, 𝑰𝑵𝑻𝑺 𝒂𝒏𝒅 𝑫𝑵𝑰𝑺! 
 
- Media I like : The Puss In Boots franchise, UU [ unstable universe ] ,Roblox PIGGY , STH [ Sonic the hedgehog ] , Hazbin hotel , TADC , and a bunch more!
+ Media I like : The Puss In Boots franchise, UU [ unstable universe ] ,Roblox PIGGY , STH [ Sonic the hedgehog ] , Hazbin hotel , TADC , Minecraft, Roblox , and a bunch more!
   
   'Hobbies : drawing , animating , playing videogames , gardening , maths , physics , cooking , volleyball and listening to music
 
