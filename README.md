@@ -10,9 +10,13 @@
   -Repostory contains information about me and about my pony town account!
 
 𝑰𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔, 𝑰𝑵𝑻𝑺 𝒂𝒏𝒅 𝑫𝑵𝑰𝑺! 
+
  Media I like : The Puss In Boots franchise, UU [ unstable universe ] ,Roblox PIGGY , STH [ Sonic the hedgehog ] , Hazbin hotel , TADC , and a bunch more!
+  
   'Hobbies : drawing , animating , playing videogames , gardening , maths , physics , cooking , volleyball and listening to music
+
 INTS : respect and kindness , any type of humor as long as it doesn't make anyone uncomfortable, smart people willing to debate 
+ 
  DNIS : homophobes , transphobes , racists , abelists , trump and ice supporters , uneducated losers on tiktok , edgy attentionseekers
 
   𝑾𝒉𝒆𝒏 𝒊𝒕 𝒄𝒐𝒎𝒆𝒔 𝒕𝒐 𝑷𝒐𝒏𝒚 𝑻𝒐𝒘𝒏..
