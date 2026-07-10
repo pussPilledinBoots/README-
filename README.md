@@ -4,6 +4,7 @@
 
 
 
+
 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆!
 
  -As stated in my bio I go by Sparrow, Sammi or Moustache
@@ -17,7 +18,7 @@
 
 INTS : respect and kindness , any type of humor as long as it doesn't make anyone uncomfortable, smart people willing to debate 
  
- DNIS : homophobes , transphobes , racists , abelists , trump and ice supporters , uneducated losers on tiktok , edgy attentionseekers
+ DNIS : homophobes , transphobes , racists , abelists , trump and ice supporters , uneducated losers , edgy attentionseekers
 
   𝑾𝒉𝒆𝒏 𝒊𝒕 𝒄𝒐𝒎𝒆𝒔 𝒕𝒐 𝑷𝒐𝒏𝒚 𝑻𝒐𝒘𝒏..
 
