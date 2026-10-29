@@ -7,7 +7,7 @@
 
 𝑨𝒃𝒐𝒖𝒕 𝒎𝒆!
 
- -As stated in my bio I go by Sparrow, Sammi or Moustache
+ -I go by Sparrow, Sammi or Moustache
   -Repostory contains information about me and about my pony town account!
 
 𝑰𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔, 𝑰𝑵𝑻𝑺 𝒂𝒏𝒅 𝑫𝑵𝑰𝑺! 
@@ -21,9 +21,9 @@ INTS : respect and kindness , any type of humor as long as it doesn't make anyon
  DNIS : homophobes , transphobes , racists , abelists , trump and ice supporters , uneducated losers , edgy attentionseekers
 
   𝑾𝒉𝒆𝒏 𝒊𝒕 𝒄𝒐𝒎𝒆𝒔 𝒕𝒐 𝑷𝒐𝒏𝒚 𝑻𝒐𝒘𝒏..
-
-   -I'm okay with cuddles and hugs as long as you ask for permission to not cause any issues
+  
   - AFK most of the time
+
 -I usually prefer if you whispered if you wanted to interact with me as most people do
 
     Statuses
@@ -34,6 +34,6 @@ INTS : respect and kindness , any type of humor as long as it doesn't make anyon
 
 🌙-I use the AWAY status as intended , so I won't respond if you're chatting to me
 
-⛔-I use the BUSY status as [ what I'd like to call ], a shield from any interaction, mostly because I'm kinda socially awkward, if you ever want to be friends maybe don't interact when I'm using this, you're gonna be met with silence-
+⛔-I use the BUSY status as (what I'd like to call), a shield from any interaction, mostly because I'm kinda socially awkward honestly
 
  That's about all!
